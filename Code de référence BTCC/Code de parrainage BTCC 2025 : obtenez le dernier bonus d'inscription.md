@@ -1,6 +1,8 @@
 <h1>Code de parrainage BTCC 2025 : Obtenez le dernier bonus d'inscription</h1>
 <h2>1. Introduction</h2>
 <p>BTCC est une plateforme d'échange de cryptomonnaies de premier plan, connue pour ses <strong>frais compétitifs, sa sécurité et son interface conviviale</strong>. Les nouveaux utilisateurs peuvent profiter d'avantages exclusifs en s'inscrivant avec un <strong>code de parrainage BTCC</strong>...</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>2. Qu'est-ce que le bonus de parrainage BTCC ?</h2>
 <p>Le <strong>bonus de bienvenue BTCC</strong> est un programme d'incitation offrant des récompenses telles que <strong>des réductions sur les frais de transaction, des bonus de dépôt et des récompenses en USDT</strong> pour les nouveaux utilisateurs.</p>
 <h3>Pourquoi BTCC propose-t-il un bonus de parrainage ?</h3>
