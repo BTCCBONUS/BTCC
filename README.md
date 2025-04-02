@@ -1,6 +1,8 @@
 <h1>Code de parrainage BTCC 'BTCCBONUS' – Jusqu'à 11 000 USDT de bonus & 50% de réduction sur les frais</h1>
 <h2>Introduction</h2>
 <p>Vous cherchez le meilleur moyen de maximiser vos récompenses de trading sur BTCC ? Avec le dernier code de parrainage BTCC (code promo ou code de réduction), les nouveaux utilisateurs reçoivent un bonus d'inscription allant jusqu'à 11 000 USDT et une réduction de 50% sur les frais de trading. Que vous soyez débutant ou trader expérimenté, profitez des avantages exclusifs de ce bonus de parrainage BTCC.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>Bonus d'inscription BTCC jusqu'à 11 000 USDT</h2>
 <h3>Code de parrainage BTCC - BTCCBONUS</h3>
 <table border="1">
